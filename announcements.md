@@ -1,2 +1,3 @@
-![Air Con](https://media.giphy.com/media/l3vR7aXoQX0OdHi48/giphy.gif)
-# Interwebz is now faster and Nicolas Cage is being installed in the staff and server roomz
+### Interwebz is now faster
+### Nicolas Cage is installed in the server room
+# Will we get Nicolas Cage in the staff room tomorrow? Find out next time on Dragon Ball Z!
