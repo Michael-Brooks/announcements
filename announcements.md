@@ -2,4 +2,4 @@
 * # Nicolas Cage is installed in the server room
 *   
     
-![Wednesday Lunch](https://media.giphy.com/media/h40IJHyaqPV1m/giphy.gif)
+![Thumbs up Thursday](https://media.giphy.com/media/u7VdGsTiOXp3q/giphy.gif)
