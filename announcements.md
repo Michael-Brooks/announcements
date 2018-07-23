@@ -1,5 +1,4 @@
-* # Interwebz is now faster
-* # Nicolas Cage is installed in the server room
+* # Congratulations to the happyily married couple Jade and Andrew Smerdon!
 *   
     
-![Shia](https://media.giphy.com/media/104ueR8J1OPM2s/giphy.gif)
+![Jade's Wedding](https://s8.postimg.cc/6bnpt3aad/wedding.jpg)
