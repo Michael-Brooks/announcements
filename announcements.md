@@ -1,4 +1,4 @@
-![Bird](https://media0.giphy.com/media/495ysA9jpXN4i1ZV2h/giphy.gif)
+![Bird stare](https://media0.giphy.com/media/495ysA9jpXN4i1ZV2h/giphy.gif)
 
 * # Congratulations to the happily married couple Andrew and Jade Smerdon!
 *   
