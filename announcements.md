@@ -1,4 +1,4 @@
-![hello](https://media.giphy.com/media/2tsLSYRZUUQo0/giphy.gif)
+![hello](https://media.giphy.com/media/Cwl1WYPYSmIus/giphy.gif)
 
 * # Congratulations to the happily married couple Andrew and Jade Smerdon!
 *   
