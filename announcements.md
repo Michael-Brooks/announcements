@@ -1,6 +1,1 @@
-![hello](https://lh3.googleusercontent.com/F5UxHNlvD7R_TLY6TaNOBrnhDtdoCoLEhmipbnni79JfhxwTdZyqQdLCYAEINL9jGrvPNHpirebFmu4KSkhku5-bqORKV4OJkvjlQUOZN-WgyHmv9m3Zx__0A1WZBFV1xNBVUZMhW6ew0Lmt-PxoVAdrgJWRa1cf5NkfO2pClY3FEnk9RZrpkMFdcLA0eEMDs6wT757EC3DHBm1JlRAFWnLf-7C9hhgnjfr-OoTtebx2YkrvqNZctzddYppvCl7Z9xe2SqHEZ3iw5uMgBO0848WfyvoEAtcIwAlmocgcqX6efrUYz9QrNPK2QDTDhp0bLAGXpFZg3gysH5yWzWKatf6fqQNHIvORQvE1hSRPo0vCmAQcl4efD2cmGQB8J7_X1CmZvUN3XyRtqDvH_6ZrYWhuZdfDtyzY-yu6PQOyWT1A2nSPwAgAgkIFrfhxGro9PEBixMZVTm9_KQy3mkaQEeh6c10V4p-PNyuPESXvUmDvD2_DDwztJdv-rBsSYXe4pDivEKhusOvTm9V3gXFXWqaYmsr20cPn7D6TGfPyiiQMPmeqKV08LFbSz5oeWukZ3ATmSgEbJY2QSYixUrG_S58QV1ezRgjt9OY0hBU=w197-h196-no)
-
-* # Congratulations to the happily married couple Andrew and Jade Smerdon!
-*   
-    
-![Jade's Wedding](https://s8.postimg.cc/6bnpt3aad/wedding.jpg)
+![hello](https://media.giphy.com/media/3NtY188QaxDdC/giphy.gif)
