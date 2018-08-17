@@ -12,6 +12,7 @@ Commander (try anything once) – Ben Hobbiton
 
 Bringing up the Rear – In Your Endo Bennet
 
-![batman](https://media.giphy.com/media/Hic2hhimBqrjW/giphy.gif)
+![technoviking](https://media.giphy.com/media/Hic2hhimBqrjW/giphy.gif)
+
 ![batman](https://media.giphy.com/media/kg4e4Wksv20eY/giphy.gif)
 ![Bat symbol](http://www.simongeake.co.uk/Bat-symbol.gif)
